@@ -1,1 +1,0 @@
-# Pengenalan-resiko-dan-cara-menangani-senyawa-umum
